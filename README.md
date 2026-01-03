@@ -1,0 +1,1 @@
+# National-Walkability-Index-Score-by-Municipality-West-South-Central-
